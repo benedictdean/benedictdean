@@ -1,4 +1,4 @@
-## Hello, I'm new here! 👋
+## Hello! 👋
 
 Under Construction...  : D
 
